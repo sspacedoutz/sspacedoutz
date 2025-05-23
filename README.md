@@ -1,4 +1,5 @@
-![image]![image](https://github.com/user-attachments/assets/ef4777a3-366b-4369-85ba-e3ca02afd06a)
+my sona/roblox sona, angel.
+[image](https://github.com/user-attachments/assets/ef4777a3-366b-4369-85ba-e3ca02afd06a)
 
 
 
