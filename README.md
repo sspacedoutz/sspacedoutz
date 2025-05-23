@@ -1,4 +1,4 @@
-[image](https://github.com/user-attachments/assets/ef4777a3-366b-4369-85ba-e3ca02afd06a)
+click link for a drawing of my sona, angel. ^w^ [image](https://github.com/user-attachments/assets/ef4777a3-366b-4369-85ba-e3ca02afd06a)
 
 
 
