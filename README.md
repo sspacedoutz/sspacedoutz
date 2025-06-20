@@ -12,7 +12,7 @@ lidally seal chance (trust)
 
 sign my strawpage :  )
 
-hi oomfies,, sorry if im offline more often, i love you guys ! <3
+hi oomfies,, sorry if im offline/text dry more often, i still love you guys ! <3 for ever n evr..heh..
 
 𓇼🪸𓇼🌿𓇼🦀𓇼🦈𓇼🪼𓇼⚓𓇼
 
