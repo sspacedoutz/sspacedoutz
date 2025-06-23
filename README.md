@@ -8,7 +8,7 @@ he/they
 
 i love marine life
 
-lidally seal chance (trust)
+lidally twotime (trust)
 
 sign my strawpage :  )
 
