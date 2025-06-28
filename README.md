@@ -1,20 +1,8 @@
-𓇼🦭𓇼🐳𓇼🐟𓇼🐚𓇼🫧𓇼🌊𓇼
+𓇼
  
-always iwc unless friend, im awkward around new people,,
+always iwc unless friend, im awkward around new people.
 
-˚୨୧⋆｡˚ ⋆
-
-he/they
-
-i love marine life
-
-lidally twotime (trust)
-
-sign my strawpage :  )
-
-hi oomfies,, sorry if im offline/text dry more often, i still love you guys ! <3 for ever n evr..heh..
-
-𓇼🪸𓇼🌿𓇼🦀𓇼🦈𓇼🪼𓇼⚓𓇼
+they/he
 
 ![image](https://github.com/user-attachments/assets/67ced007-53b7-4cde-8e78-54ee99cb20c9)
 
