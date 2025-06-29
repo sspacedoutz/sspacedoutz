@@ -1,6 +1,6 @@
 𓇼
  
-always iwc unless friend, im awkward around new people..
+always iwc unless friend, im awkward around new people..BUT IM PRETTY NICE! ^_^
 
 they/he
 
