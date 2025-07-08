@@ -1,12 +1,5 @@
-𓇼
- 
-always iwc unless friend, im awkward around new people..BUT IM PRETTY NICE! ^_^
+![image](https://github.com/user-attachments/assets/953d1da7-538b-4434-96c5-af02e6935e8d)
 
-they/he
-
-sign straw?.?
-
-![image](https://github.com/user-attachments/assets/67ced007-53b7-4cde-8e78-54ee99cb20c9)
 
 
 
