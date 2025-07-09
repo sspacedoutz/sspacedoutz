@@ -1,4 +1,6 @@
-![image](https://github.com/user-attachments/assets/953d1da7-538b-4434-96c5-af02e6935e8d)
+![image](https://github.com/user-attachments/assets/b0c8fd65-84ab-460f-a908-b78967147cf9)
+
+` ~ he/they. basic dni , just be respectful. c+h unless with friends ^^
 
 
 
