@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/b0c8fd65-84ab-460f-a908-b78967147cf9)
 
-` ~ he/they. basic dni , just be respectful. c+h unless with friends ^^ send me things on my strawpage~!!!!
+` ~ he/they. basic dni , just be respectful. c+h unless with friends ^^ send me things on my strawpage~!! i'll reply
 
 
 
