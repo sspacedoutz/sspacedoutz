@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/b0c8fd65-84ab-460f-a908-b78967147cf9)
 
-` ~ he/they. basic dni , just be respectful. always iwcuf pls..!^_^ send me things on my strawpage! i'll reply! I am very into PRESSURE and Chiikawa!
+` ~ he/they. basic dni , just be respectful. always iwcuf pls..!^_^ send me things on my strawpage! i'll reply! I love Pressure, Chiikawa, and Animatic Battle!! and more stuffs ^,^
 
 
 
