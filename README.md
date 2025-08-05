@@ -1,7 +1,8 @@
-<img width="1516" height="714" alt="image" src="https://github.com/user-attachments/assets/ed4b67e6-3953-44d5-bc1c-3daf1d67ae5d" />
+<img width="1471" height="727" alt="image" src="https://github.com/user-attachments/assets/b10b6579-ec59-49ba-b22a-69cfadb58790" />
 
 
-` ~ he/they! lowkey editing about me, nnooo dont look haha nooouuu...!!
+
+` ~ he/they! lowkey editing about me, nnooo dont look haha nooo...
 
 
 
