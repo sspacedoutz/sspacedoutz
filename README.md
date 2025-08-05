@@ -1,6 +1,7 @@
-![image](https://github.com/user-attachments/assets/b0c8fd65-84ab-460f-a908-b78967147cf9)
+<img width="1516" height="714" alt="image" src="https://github.com/user-attachments/assets/ed4b67e6-3953-44d5-bc1c-3daf1d67ae5d" />
 
-` ~ he/they. basic dni , just be respectful. always iwcuf pls..!^_^ send me things on my strawpage! i'll reply! ^,^ HOH IM SO CLOCK !?
+
+` ~ he/they! lowkey editing about me, nnooo dont look haha nooouuu...!!
 
 
 
