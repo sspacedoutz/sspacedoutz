@@ -4,6 +4,9 @@
 
 ` ~ he/they! lowkey editing about me, nnooo dont look haha nooo... MY EXPERIENCE WITH DUMMYINBED! IF YOU SEE HIM ITS ON SIGHT TRUST ME! wait im joking miles noo dont kill me HEL HELP-
 
+<img width="679" height="530" alt="image" src="https://github.com/user-attachments/assets/85413709-5326-403e-80f9-cc16c429a80e" />
+
+
 
 
 
