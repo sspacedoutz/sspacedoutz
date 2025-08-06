@@ -2,7 +2,7 @@
 
 
 
-` ~ he/they! lowkey editing about me, nnooo dont look haha nooo...
+` ~ he/they! lowkey editing about me, nnooo dont look haha nooo... MY EXPERIENCE WITH DUMMYINBED! IF YOU SEE HIM ITS ON SIGHT TRUST ME! wait im joking miles noo dont kill me HEL HELP-
 
 
 
