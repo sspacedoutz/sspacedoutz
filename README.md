@@ -5,7 +5,8 @@
 
 ` ~ he/they! lowkey editing about me, nnooo dont look haha nooo... MY EXPERIENCE WITH DUMMYINBED! IF YOU SEE HIM YOU GOTTA KILL HIM! wait im joking miles noo dont hurt me HEL HELP-
 
-<img width="381" height="386" alt="image" src="https://github.com/user-attachments/assets/38e18ed7-470d-4d99-9b26-9b7bfa3c102d" />
+<img width="381" height="386" alt="image" src="https://github.com/user-attachments/assets/38e18ed7-470d-4d99-9b26-9b7bfa3c102d" /> <img width="596" height="554" alt="image" src="https://github.com/user-attachments/assets/b0c02216-64c5-4e69-aea3-61dc9b94c011" />
+
 
 
 
