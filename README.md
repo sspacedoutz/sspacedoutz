@@ -1,10 +1,11 @@
-<img width="640" height="399" alt="image" src="https://github.com/user-attachments/assets/8a28d53a-0f0c-4049-9a5c-edfdf42a1cde" />
+<img width="666" height="375" alt="image" src="https://github.com/user-attachments/assets/f35d5b5d-88fb-4c81-bd51-29f24b8e8472" />
 
 
 
 
 
-` ~ he/they! lowkey editing about me, nnooo dont look haha nooo... MY EXPERIENCE WITH DUMMYINBED! IF YOU SEE HIM YOU GOTTA KILL HIM! wait im joking miles noo dont hurt me HEL HELP-
+
+` ~ he/they! elliot/soren/any name of my kins/skin im using!! MY EXPERIENCE WITH DUMMYINBED! IF YOU SEE HIM YOU GOTTA KILL HIM! wait im joking miles noo dont hurt me HEL HELP-
 
 <img width="381" height="386" alt="image" src="https://github.com/user-attachments/assets/38e18ed7-470d-4d99-9b26-9b7bfa3c102d" />
 
