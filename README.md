@@ -5,7 +5,9 @@
 
 
 
-` ~ he/they! elliot/soren/any name of my kins/skin im using!! MY EXPERIENCE WITH DUMMYINBED! IF YOU SEE HIM YOU GOTTA KILL HIM! wait im joking miles noo dont hurt me HEL HELP-
+` ~ he/they! elliot/soren/any name of my kins/skin im using!! 
+
+watch out for @dummyinbed !! hes super dangerous! ahhh!!
 
 <img width="381" height="386" alt="image" src="https://github.com/user-attachments/assets/38e18ed7-470d-4d99-9b26-9b7bfa3c102d" />
 
