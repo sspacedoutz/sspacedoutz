@@ -1,3 +1,4 @@
+<img width="735" height="604" alt="image" src="https://github.com/user-attachments/assets/d7687576-351c-46b9-8550-b4ec6fc81340" />
 <img width="666" height="375" alt="image" src="https://github.com/user-attachments/assets/f35d5b5d-88fb-4c81-bd51-29f24b8e8472" />
 
 ~ he/they! elliot/soren/any name of my kins/skin im using!! 
