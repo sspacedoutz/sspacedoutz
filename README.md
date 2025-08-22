@@ -1,8 +1,9 @@
-<img width="1471" height="727" alt="image" src="https://github.com/user-attachments/assets/8bedaaef-bc8a-42e3-9921-25af45e3ae11" />
+<img width="577" height="433" alt="image" src="https://github.com/user-attachments/assets/5af2284b-9ecb-4a58-9b72-628fc5931a11" />
 
-~ he/they! elliot/soren/any name of my kins/skin im using!! 
 
-~ watch out for @dummyinbed !! hes super dangerous! ahhh!! D:
+~ he/they! elliot/any name of my kins/skin im using
+
+~ MY EXPERIENCE WITH @dummyinbed !! hes super dangerous. trust... >:-(
 
 <img width="381" height="386" alt="image" src="https://github.com/user-attachments/assets/38e18ed7-470d-4d99-9b26-9b7bfa3c102d" />
 
