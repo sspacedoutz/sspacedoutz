@@ -1,9 +1,10 @@
-<img width="577" height="433" alt="image" src="https://github.com/user-attachments/assets/5af2284b-9ecb-4a58-9b72-628fc5931a11" />
+<img width="1089" height="619" alt="image" src="https://github.com/user-attachments/assets/5e520915-10ac-487d-b9f8-4d75beb77d8f" />
 
 
-~ he/they! elliot/any name of my kins/skin im using
 
-~ MY EXPERIENCE WITH @dummyinbed !! hes super dangerous. trust... >:-(
+~ he/they! elliot/any name of my kins/skin im using!
+
+~ MY EXPERIENCE WITH @dummyinbed !! hes super dangerous. trust!... >:-(
 
 <img width="381" height="386" alt="image" src="https://github.com/user-attachments/assets/38e18ed7-470d-4d99-9b26-9b7bfa3c102d" />
 
