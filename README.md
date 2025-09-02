@@ -6,7 +6,8 @@
 
 throw banana peels at @dummyinbed and @ZEROHORIZONS theyy calling me fattt ahhh!!
 
-<img width="381" height="386" alt="image" src="https://github.com/user-attachments/assets/38e18ed7-470d-4d99-9b26-9b7bfa3c102d" />
+<img width="400" height="504" alt="image" src="https://github.com/user-attachments/assets/0577d587-195f-4da1-98b8-1761331f6d9a" />
+
 
 
 
