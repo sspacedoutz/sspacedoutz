@@ -1,8 +1,10 @@
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/5dc1ad09-8119-4f3d-a6b3-ed560d743cca" />
+
  ༶•୨♡୧•༶ 
+ 
 ~ he/they! elliot/any name of my kins/skin im using!
 
-~ throw banana peels at @dummyinbed !! ^q^
+throw banana peels at @dummyinbed !! ^q^
 
 <img width="381" height="386" alt="image" src="https://github.com/user-attachments/assets/38e18ed7-470d-4d99-9b26-9b7bfa3c102d" />
 
