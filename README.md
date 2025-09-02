@@ -1,4 +1,6 @@
-<img width="343" height="420" alt="image" src="https://github.com/user-attachments/assets/2f08b96f-be80-4a09-b008-16ee2cf5dbdf" /> ༶•୨♡୧•༶ <img width="343" height="420" alt="image" src="https://github.com/user-attachments/assets/3cc5c913-188a-4ebd-9079-3746d10e1dd5" />
+<img width="458" height="545" alt="image" src="https://github.com/user-attachments/assets/f4961186-6374-4ab2-9372-652a19ea3b96" />
+
+ ༶•୨♡୧•༶ 
 
 
 
@@ -8,7 +10,7 @@
 
 ~ he/they! elliot/any name of my kins/skin im using!
 
-~ MY EXPERIENCE WITH @dummyinbed !! hes super dangerous. trust!... >:-(
+~ throw banana peels at @dummyinbed !! ^q^
 
 <img width="381" height="386" alt="image" src="https://github.com/user-attachments/assets/38e18ed7-470d-4d99-9b26-9b7bfa3c102d" />
 
