@@ -4,7 +4,7 @@
  
 ~ he/they! elliot/any name of my kins/skin im using!
 
-throw banana peels at @dummyinbed hhehss calling me fattt ahhh!!
+throw banana peels at @dummyinbed and @ZEROHORIZONS theyy calling me fattt ahhh!!
 
 <img width="381" height="386" alt="image" src="https://github.com/user-attachments/assets/38e18ed7-470d-4d99-9b26-9b7bfa3c102d" />
 
