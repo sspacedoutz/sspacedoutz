@@ -8,7 +8,7 @@
  
 ~ he/they! elliot/any name of my kins/skin im using!
 
-slime out at @dummyinbed and @ZEROHORIZONS theyy calling me fat... ?
+slime out @dummyinbed and @ZEROHORIZONS theyy calling me fat..
 
 <img width="808" height="564" alt="image" src="https://github.com/user-attachments/assets/ebb7b1c1-4611-4dbe-925e-2a9681bcd3f6" />
 
