@@ -8,9 +8,10 @@
  
 ~ he/they! elliot/any name of my kins/skin im using!
 
-throw banana peels at @dummyinbed and @ZEROHORIZONS theyy calling me fattt ahhh!!
+slime out at @dummyinbed and @ZEROHORIZONS theyy calling me fat... ?
 
-<img width="400" height="504" alt="image" src="https://github.com/user-attachments/assets/0577d587-195f-4da1-98b8-1761331f6d9a" />
+<img width="808" height="564" alt="image" src="https://github.com/user-attachments/assets/ebb7b1c1-4611-4dbe-925e-2a9681bcd3f6" />
+
 
 elseif touchd my bum
 
