@@ -11,7 +11,8 @@
 
 slime out @dummyinbed and @ZEROHORIZONS theyy calling me fat..
 
-<img width="808" height="564" alt="image" src="https://github.com/user-attachments/assets/ebb7b1c1-4611-4dbe-925e-2a9681bcd3f6" />
+<img width="1015" height="648" alt="image" src="https://github.com/user-attachments/assets/ca3d6540-99e2-4661-9cc7-44d6e570aa98" />
+
 
 
 elseif touchd my bum
