@@ -1,4 +1,5 @@
-<img width="1136" height="1042" alt="image" src="https://github.com/user-attachments/assets/d3ab0786-f39d-4b50-bcd8-f1b81687acde" />
+<img width="735" height="439" alt="image" src="https://github.com/user-attachments/assets/26e8f5b7-8023-4f2f-b930-4374d2e74e9c" />
+
 
 
 
@@ -15,9 +16,7 @@ slime out @dummyinbed and @ZEROHORIZONS theyy calling me fat..
 
 
 
-elseif touchd my bum
-
-<img width="421" height="216" alt="image" src="https://github.com/user-attachments/assets/10f9667a-4047-4c2e-964e-1357dfa011d0" /> this is me and gang.OK? ok..
+elseif touchd my bum.horizon calls me FAT. hes fatter.. soo.??
 
 
 
