@@ -12,11 +12,14 @@
 
 slime out @dummyinbed, @ZEROHORIZONS and @10nuclearbombs theyy calling me fat..
 
-<img width="1015" height="648" alt="image" src="https://github.com/user-attachments/assets/ca3d6540-99e2-4661-9cc7-44d6e570aa98" />
+<img width="394" height="265" alt="image" src="https://github.com/user-attachments/assets/7d6da2ae-02f0-4fe8-be79-62ee2b536fdb" />
+
+merry christmas!
 
 
 
-elseif touchd my bum.horizon calls me FAT. hes fatter.. soo.??
+
+(P.S: elseif touchd my bum..horizon calls me FAT. hes fatter.. soo.??)
 
 
 
