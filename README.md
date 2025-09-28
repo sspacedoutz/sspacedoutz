@@ -12,11 +12,6 @@
  
 ~ they/he , elliot/soren + others.
 
-
-.
-
-.
-
 . int is okay unless stated otherwise  ༶•
 
 .    ༶• sometimes i wont respond, don't take it personally. ^.^
