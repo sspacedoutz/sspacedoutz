@@ -8,10 +8,24 @@
 
 
 
- ༶•୨♡୧•༶ 
+  ༶•୨♡୧•༶
  
-~ he/they! elliot/any name of my kins/skin im using
+~ they/he , elliot/soren + others.
 
+
+.
+
+.
+
+. int is okay unless stated otherwise  ༶•
+
+.    ༶• sometimes i wont respond, don't take it personally. ^.^
+
+.
+
+. I can act awkwardly , i swear im nice tho! ༶•
+
+.     ༶• i like to be with my close friends :-)
 
 .
 
@@ -32,38 +46,6 @@
 .
 
 .
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-
-
-
-
-
-
-
-
-
-
-
 
 slime out @dummyinbed, @ZEROHORIZONS and @10nuclearbombs theyy calling me fat..
 
