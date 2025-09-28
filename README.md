@@ -10,7 +10,19 @@
 
  ༶•୨♡୧•༶ 
  
-~ he/they! elliot/any name of my kins/skin im using!
+~ he/they! elliot/any name of my kins/skin im using
+
+
+
+
+
+
+
+
+
+
+
+
 
 slime out @dummyinbed, @ZEROHORIZONS and @10nuclearbombs theyy calling me fat..
 
