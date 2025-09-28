@@ -8,9 +8,7 @@
 
 
 
-  ༶•୨♡୧•༶
- 
-~ they/he , elliot/soren + others.
+  ༶•୨♡୧•༶ ~ they/he , elliot/soren + others.
 
 . int is okay unless stated otherwise.  ༶•
 
