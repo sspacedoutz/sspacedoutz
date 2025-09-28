@@ -13,6 +13,47 @@
 ~ he/they! elliot/any name of my kins/skin im using
 
 
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+
 
 
 
