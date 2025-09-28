@@ -12,11 +12,11 @@
 
 . int is okay unless stated otherwise.  ༶•
 
-.    ༶• sometimes i wont respond, don't take it personally. ^.^
+.    ༶• sometimes i wont respond, don't take it personally. I'm prob shy or dont feel like talking atm! ^.^
 
 .
 
-. I can act awkwardly , i swear im nice tho! ༶•
+. I can act awkwardly , i swear im nice tho! I'm just an anxious person. ༶•
 
 .     ༶• i like to be with my close friends. :-)
 
