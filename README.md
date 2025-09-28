@@ -12,7 +12,7 @@
  
 ~ they/he , elliot/soren + others.
 
-. int is okay unless stated otherwise  ༶•
+. int is okay unless stated otherwise.  ༶•
 
 .    ༶• sometimes i wont respond, don't take it personally. ^.^
 
@@ -20,11 +20,9 @@
 
 . I can act awkwardly , i swear im nice tho! ༶•
 
-.     ༶• i like to be with my close friends :-)
+.     ༶• i like to be with my close friends. :-)
 
-.
-
-.
+. my replies might be delayed sometimes, most likely im also watching youtube or sum. ^_^" ༶•
 
 .
 
