@@ -10,7 +10,7 @@
 
   ༶•୨♡୧•༶ ~ they/he , elliot/soren + others.
 
-. int is okay unless stated otherwise.  ༶•
+. int is okay unless stated otherwise. 13 and under iwc or dont int,,tyy,,  ༶•
 
 .    ༶• sometimes i wont respond, don't take it personally. I'm prob shy or dont feel like talking atm! ^.^
 
