@@ -1,4 +1,15 @@
+$${\color{lightgreen}You \space \color{red} Look \space \color{red} Quite \space \color{red}Devine \space \color{red}tonight,{}}$$
+<div align="center">
+  
+" $${\color{red}Everyone's \space \color{red}looking \space \color{red}at \space \color{red}us \space \color{red}...{}}$$ "
+  
+════════════════════════════════════════════════════════════════════════════════════
+ <div align="center">
+   
 <img width="736" height="534" alt="image" src="https://github.com/user-attachments/assets/dbfe7693-aac4-48f5-b2f9-480cdd762f2b" />
+   
+ <div align="center">
+═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •══════════════════════════════
 
 
 
@@ -9,17 +20,17 @@
 
 
 
-  ༶•୨♡୧•༶ ~ they/he , elliot/soren + others.
+ ༶•୨♡୧•༶ ~ they/he , elliot/soren + others.
 
 . int is okay unless stated otherwise. 13 and under iwc or dont int,,tyy,,  ༶•
 
-.    ༶• sometimes i wont respond, don't take it personally. I'm prob shy or dont feel like talking atm! ^.^
+.   ༶• sometimes i wont respond, don't take it personally. I'm prob shy or dont feel like talking atm! ^.^
 
 .
 
 . I can act awkwardly , i swear im nice tho! I'm just an anxious person. ༶•
 
-.     ༶• i like to be with my close friends. :-)
+.    ༶• i like to be with my close friends. :-)
 
 . my replies might be delayed sometimes, most likely im also watching youtube or sum. ^_^" ༶•
 
