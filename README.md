@@ -41,12 +41,6 @@ $${\color{red}Everyone's \space \color{red}looking \space \color{red}at \space \
 
 .
 
-.
-
-.
-
-.
-
 . FLY HIGH AGENT. PONY TOWN LOST A REAL ONE 💔💔
 
 .
