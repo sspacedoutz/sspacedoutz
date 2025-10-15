@@ -1,13 +1,14 @@
-$${\color{lightgreen}You \space \color{red} Look \space \color{red} Quite \space \color{red}Devine \space \color{red}tonight,{}}$$
+
 <div align="center"> 
 ════════════════════════════════════════════════════════════════════════════════════
  <div align="center">
    
-<img width="736" height="534" alt="image" src="https://github.com/user-attachments/assets/dbfe7693-aac4-48f5-b2f9-480cdd762f2b" />
+<img width="1182" height="876" alt="image" src="https://github.com/user-attachments/assets/854a4d18-af70-4797-9da3-011d3982dd2b" />
+
    
  <div align="center">
 
-$${\color{red}Everyone's \space \color{red}looking \space \color{red}at \space \color{red}us \space \color{red}...{}}$$
+
  <div align="center">
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •══════════════════════════════
 
