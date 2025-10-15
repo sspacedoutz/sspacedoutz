@@ -11,11 +11,7 @@ Too lazy to make a strawpage with actual information so,, basic dni.
  (-13 pref dni unless i've known you beforehand, for comfort reasons. same for HH and HB fans, I don't like you guys and your shows are weird asl. sorry not sorry.)
 
 
- Hi Dignity~ light my cig.
- 
-
-
-
+ Hi [Dignity]( https://github.com/dummyinbed )~ light my cig.
 
 
 
