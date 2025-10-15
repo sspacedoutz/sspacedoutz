@@ -6,49 +6,14 @@
 
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════════
 
+Too lazy to make a strawpage with actual information so,, basic dni. 
+
+ (-13 pref dni unless i've known you beforehand, for comfort reasons. same for HH and HB fans, I don't like you guys and your shows are weird asl. sorry not sorry.)
 
 
+ Hi Dignity~ light my cig.
+ 
 
-
-
-
-
-
-
- ༶•୨♡୧•༶ ~ they/he , elliot/soren + others.
-
-. int is okay unless stated otherwise. 13 and under iwc or dont int,,tyy,,  ༶•
-
-.   ༶• sometimes i wont respond, don't take it personally. I'm prob shy or dont feel like talking atm! ^.^
-
-.
-
-. I can act awkwardly , i swear im nice tho! I'm just an anxious person. ༶•
-
-.    ༶• i like to be with my close friends. :-)
-
-. my replies might be delayed sometimes, most likely im also watching youtube or sum. ^_^" ༶•
-
-.
-
-.
-
-.
-
-. FLY HIGH AGENT. PONY TOWN LOST A REAL ONE 💔💔
-
-.
-
-slime out @dummyinbed, @ZEROHORIZONS and @10nuclearbombs theyy calling me fat..
-
-<img width="394" height="265" alt="image" src="https://github.com/user-attachments/assets/7d6da2ae-02f0-4fe8-be79-62ee2b536fdb" />
-
-merry christmas!
-
-
-
-
-(P.S: elseif touchd my bum..horizon calls me FAT. hes fatter.. soo.??)
 
 
 
