@@ -13,7 +13,7 @@ Too lazy to make a strawpage with actual information so,, basic dni.
 
  Hi [Dignity]( https://github.com/dummyinbed )~ light my cig.
  
-![](https://komarev.com/ghpvc/?username=sspacedoutz&label=stalkers&color=yellow&style=flat)
+![](https://komarev.com/ghpvc/?username=sspacedoutz&label=place_visits&color=yellow&style=flat)
 
 
 
