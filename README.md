@@ -15,6 +15,9 @@ Too lazy to make a strawpage with actual information so,, basic dni.
  
 ![](https://komarev.com/ghpvc/?username=sspacedoutz&label=place_visits&color=yellow&style=flat)
 
+════════════════════════════════════════════════════════════════════════════════════
+ <div align="center">
+
 
 
 
