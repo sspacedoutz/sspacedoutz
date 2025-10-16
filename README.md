@@ -17,7 +17,8 @@ Too lazy to make a strawpage with actual information so,, basic dni.
 
 ════════════════════════════════════════════════════════════════════════════════════
  <div align="center">
-
+  
+<img width="917" height="965" alt="image" src="https://github.com/user-attachments/assets/2cbb370a-a132-4c12-9cda-d9bdac958c27" />
 
 
 
