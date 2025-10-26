@@ -2,7 +2,8 @@
 ════════════════════════════════════════════════════════════════════════════════════
  <div align="center">
    
-<img width="580" height="430" alt="image" src="https://github.com/user-attachments/assets/4e112d2c-5c8a-42c2-8741-00619cf16866" />
+<img width="736" height="669" alt="image" src="https://github.com/user-attachments/assets/ed6ed318-e19c-4d8e-8811-0f9081386707" />
+
 
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════════
 
@@ -10,7 +11,7 @@ Too lazy to make a strawpage with actual information so,, basic dni.
 
  (-13 pref dni unless i've known you beforehand, for comfort reasons. same for HH and HB fans.)
 
- Elliot/Soren/Zuka . Shelly for more femme! any pronouns :-)
+ Elliot/Soren for masc, Elli/Juni for femme! any pronouns :-)
 
 
  Hi [Dignity]( https://github.com/dummyinbed )~ light my cig.
