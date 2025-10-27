@@ -12,7 +12,7 @@ Too lazy to make a strawpage with actual information so,, basic dni.
 
  (-13 pref dni unless i've known you beforehand, for comfort reasons. same for HH and HB fans.)
 
- Elliot/Soren for masc, Elli/Juni for femme! any pronouns :-)
+ Elliot/Soren/Shelly! any pronouns :-)
 
 
  Hi [Dignity]( https://github.com/dummyinbed )~ light my cig.
