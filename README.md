@@ -1,9 +1,9 @@
  <div align="center">
-  pfp/ic - @g7c950wa on pin
 ════════════════════════════════════════════════════════════════════════════════════
  <div align="center">
    
-<img width="736" height="669" alt="image" src="https://github.com/user-attachments/assets/ed6ed318-e19c-4d8e-8811-0f9081386707" />
+<img width="735" height="621" alt="image" src="https://github.com/user-attachments/assets/1e74ad67-dc07-4e80-88ab-9e8df6c770fb" />
+
 
 
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════════
