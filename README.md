@@ -1,7 +1,9 @@
  <div align="center">
 ════════════════════════════════════════════════════════════════════════════════════
  <div align="center">
-  <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/ed4753ba-49d8-40f7-9d81-09a62c6a2749" />
+  
+  <img width="493" height="506" alt="image" src="https://github.com/user-attachments/assets/84b1ecca-6509-4b57-9b95-cf7a0fc386ca" />
+
 
 
 
