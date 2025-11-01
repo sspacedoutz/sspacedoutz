@@ -15,7 +15,7 @@ Too lazy to make a strawpage with actual information so,, basic dni.
 
  (-13 pref dni unless i've known you beforehand, for comfort reasons. same for HH and HB fans.)
 
- Elliot/Soren/Shelly! any pronouns :-)
+ Elliot/Soren , any pronouns :-)
 
 
  Hi [Dignity]( https://github.com/dummyinbed )~ light my cig.
