@@ -18,14 +18,12 @@ Too lazy to make a strawpage with actual information so,, basic dni.
  Elliot/Soren , any pronouns :-)
 
 
- Hi [Dignity]( https://github.com/dummyinbed )~ light my cig.
+ Hi [Dignity]( https://github.com/dummyinbed )!!!! <3
  
-![](https://komarev.com/ghpvc/?username=sspacedoutz&label=place_visits&color=yellow&style=flat)
+![](https://komarev.com/ghpvc/?username=sspacedoutz&label=berries&color=blue&style=flat)
 
 ════════════════════════════════════════════════════════════════════════════════════
- <div align="center">
-  
-<img width="917" height="965" alt="image" src="https://github.com/user-attachments/assets/2cbb370a-a132-4c12-9cda-d9bdac958c27" />
+
 
 
 
