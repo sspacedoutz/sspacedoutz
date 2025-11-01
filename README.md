@@ -1,8 +1,8 @@
  <div align="center">
 ════════════════════════════════════════════════════════════════════════════════════
  <div align="center">
-   
-<img width="736" height="893" alt="image" src="https://github.com/user-attachments/assets/12deea7c-932d-4b91-889e-433c3e77a429" />
+  <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/ed4753ba-49d8-40f7-9d81-09a62c6a2749" />
+
 
 
 
