@@ -2,7 +2,8 @@
 ════════════════════════════════════════════════════════════════════════════════════
  <div align="center">
   
-  <img width="493" height="506" alt="image" src="https://github.com/user-attachments/assets/84b1ecca-6509-4b57-9b95-cf7a0fc386ca" />
+<img width="640" height="390" alt="image" src="https://github.com/user-attachments/assets/6cc2bb79-8ca5-46fe-ae1b-7572893df919" />
+
 
 
 
