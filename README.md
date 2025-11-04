@@ -1,4 +1,5 @@
  <div align="center">
+／(≧ x ≦)＼  " Bingo, Bingo, baby I love you, ain't that crazy? I want you, I want you over again . " ᕱ⑅ᕱ
 ════════════════════════════════════════════════════════════════════════════════════
  <div align="center">
   
@@ -17,6 +18,8 @@ Too lazy to make a strawpage with actual information so,, basic dni.
  (-13 pref dni unless i've known you beforehand, for comfort reasons. same for HH and HB fans.)
 
  Elliot/Soren/Aubree , any pronouns :-)
+
+૮꒰ ˶• ༝ •˶꒱ა ♡
 
 
  Hi [Dignity]( https://github.com/dummyinbed )!!!! <3
