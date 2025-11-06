@@ -13,16 +13,16 @@
 
 ═══════════════════════════• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •═════════════════════════════
 
-Too lazy to make a strawpage with actual information so,, basic dni. 
+Too lazy to make a strawpage with actual information so,, basic dni.. ໒꒰ྀིっ˕ -｡꒱ྀི১
 
- (-13 pref dni unless i've known you beforehand, for comfort reasons. same for HH and HB fans.)
+૮꒰˶ ⁠❛   ˕ ⁠❛˶꒱ა (-13 pref dni unless i've known you beforehand, for comfort reasons. same for HH and HB fans.) /lh
 
- Elliot/Soren/Aubree , any pronouns :-)
+ Elliot/Soren/Aubree , any pronouns ₍ᐢ. ̫ .ᐢ₎
 
 ૮꒰ ˶• ༝ •˶꒱ა ♡
 
 
- Hi [Dignity]( https://github.com/dummyinbed )!!!! <3
+ Hi [1x!!]( https://github.com/dummyinbed )!!!! <3
  
 ![](https://komarev.com/ghpvc/?username=sspacedoutz&label=apples&color=red&style=flat)
 
