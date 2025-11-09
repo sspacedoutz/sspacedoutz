@@ -18,7 +18,7 @@ Too lazy to make a strawpage with actual information so,, basic dni.. ໒꒰ྀ�
 
 ૮꒰˶ ⁠❛   ˕ ⁠❛˶꒱ა (-13 pref dni unless i've known you beforehand, for comfort reasons. same for HH and HB fans.) /lh
 
- Elliot/Soren/Aubree , any pronouns ₍ᐢ. ̫ .ᐢ₎
+ read pronouns for info. ty! ₍ᐢ. ̫ .ᐢ₎
 
 ૮꒰ ˶• ༝ •˶꒱ა ♡
 
