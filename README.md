@@ -23,9 +23,9 @@ Too lazy to make a strawpage with actual information so,, basic dni.. ໒꒰ྀ�
 ૮꒰ ˶• ༝ •˶꒱ა ♡
 
 
- Hi [1x!!]( https://github.com/dummyinbed )!!!! <3
+ Hi [wemmy!]( https://github.com/dummyinbed )!!!! <3
  
-![](https://komarev.com/ghpvc/?username=sspacedoutz&label=apples&color=red&style=flat)
+![](https://komarev.com/ghpvc/?username=sspacedoutz&label=ragebaits&color=green&style=flat)
 
 ════════════════════════════════════════════════════════════════════════════════════
 
