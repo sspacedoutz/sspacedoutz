@@ -5,6 +5,7 @@ $${\color{white}You're \space \color{white} Kind \space \color{white} Of \space 
  <div align="center">
   
 
+<img width="741" height="959" alt="image" src="https://github.com/user-attachments/assets/1d597342-1acd-493e-868f-5a583affab35" />
 
 
 
