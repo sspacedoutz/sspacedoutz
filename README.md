@@ -24,7 +24,7 @@ Too lazy to make a strawpage with actual information so,, basic dni.. ໒꒰ྀ�
 ૮꒰ ˶• ༝ •˶꒱ა ♡
 
 
- Hi [eggchan!!]( https://github.com/dummyinbed )!!!! <3
+ Hi [eggchan!!]( https://github.com/PrinceWemmbu )!!!! <3
  
 ![](https://komarev.com/ghpvc/?username=sspacedoutz&label=enemies&color=blueviolet&style=flat)
 
