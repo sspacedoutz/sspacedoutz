@@ -1,9 +1,9 @@
  <div align="center">
-" wait, is this the real you!! " ᕱ⑅ᕱ
+
+$${\color{white}You're \space \color{white} Kind \space \color{white} Of \space \color{white}Bringing \space \color{white}Up \space \color{white}A \space \color{white}Scenario \space \color{white}That's\space \color{white}Being \space \color{white}Actively \space \color{white}Solved \space \color{white}Right \space \color{white}Now{}}$$
 ════════════════════════════════════════════════════════════════════════════════════
  <div align="center">
   
-<img width="735" height="643" alt="image" src="https://github.com/user-attachments/assets/15fcb3ba-b528-4158-93db-b5fdbcf16239" />
 
 
 
@@ -25,7 +25,7 @@ Too lazy to make a strawpage with actual information so,, basic dni.. ໒꒰ྀ�
 
  Hi [eggchan!!]( https://github.com/dummyinbed )!!!! <3
  
-![](https://komarev.com/ghpvc/?username=sspacedoutz&label=ragebaits&color=green&style=flat)
+![](https://komarev.com/ghpvc/?username=sspacedoutz&label=enemies&color=blueviolet&style=flat)
 
 ════════════════════════════════════════════════════════════════════════════════════
 
