@@ -4,8 +4,7 @@ $${\color{white}You're \space \color{white} Kind \space \color{white} Of \space 
 ════════════════════════════════════════════════════════════════════════════════════
  <div align="center">
   
-
-<img width="741" height="959" alt="image" src="https://github.com/user-attachments/assets/1d597342-1acd-493e-868f-5a583affab35" />
+<img width="633" height="297" alt="image" src="https://github.com/user-attachments/assets/85a889ea-d508-4b45-b6de-b70dbb205479" />
 
 
 
