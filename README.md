@@ -21,9 +21,9 @@ Too lazy to make a strawpage with actual information so,, basic dni.. ໒꒰ྀ�
 
 ૮꒰˶ ⁠❛   ˕ ⁠❛˶꒱ა (-13 pref dni unless i've known you beforehand, for comfort reasons. same for HH and HB fans.) /lh
 
-fictkin of Shelly from Dandys World. i dont mind doubles but just fyi.
+fictkin of Shelly from Dandys World. i dont mind doubles but please dont rub it in my face to antagonize me ^-^''
 
- read pronouns for info. ty! ₍ᐢ. ̫ .ᐢ₎
+ read pronounscc for name/pronouns info. ty! ₍ᐢ. ̫ .ᐢ₎
 
 ૮꒰ ˶• ༝ •˶꒱ა ♡
 
