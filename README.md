@@ -1,8 +1,8 @@
  <div align="center">
 
-$${\color{white}You're \space \color{white} Kind \space \color{white} Of \space \color{white}Bringing \space \color{white}Up \space \color{white}A \space \color{white}Scenario \space \color{white}That's\space \color{white}Being \space \color{white}Actively \space \color{white}Solved \space \color{white}Right \space \color{white}Now{}}$$
+" $${\color{white}You're \space \color{white} Kind \space \color{white} Of \space \color{white}Bringing \space \color{white}Up \space \color{white}A \space \color{white}Scenario \space \color{white}That's\space \color{white}Being \space \color{white}Actively \space \color{white}Solved \space \color{white}Right \space \color{white}Now{}}$$ "
 
-some info below!
+some info below , please read before you int !
 ════════════════════════════════════════════════════════════════════════════════════
  <div align="center">
   
