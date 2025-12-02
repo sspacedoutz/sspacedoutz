@@ -6,7 +6,9 @@ some info below , please read before you int !
 ════════════════════════════════════════════════════════════════════════════════════
  <div align="center">
   
-<img width="1024" height="768" alt="image" src="https://github.com/user-attachments/assets/57fcbfaa-16d1-4a05-b782-a66f2cc1500a" />
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/b88e74ee-cacc-4bb9-b9a3-2e88cb79a657" />
+
+
 
 
 
