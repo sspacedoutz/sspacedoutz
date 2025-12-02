@@ -32,7 +32,7 @@ fictkin of Shelly from Dandys World. i dont mind doubles but please dont rub it 
 
  Hi [eggchan!!]( https://github.com/PrinceWemmbu )!!!! <3
  
-![](https://komarev.com/ghpvc/?username=sspacedoutz&label=fossils&color=yellow&style=flat)
+![](https://komarev.com/ghpvc/?username=sspacedoutz&label=views&color=blue&style=flat)
 
 ════════════════════════════════════════════════════════════════════════════════════
 
