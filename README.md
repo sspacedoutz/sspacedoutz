@@ -2,7 +2,8 @@
 
 iwc at all times unless friend . sign straw maybe..
 
-<img width="640" height="390" alt="image" src="https://github.com/user-attachments/assets/3612220d-579c-4298-be03-6af1169aa7bf" />
+<img width="719" height="227" alt="image" src="https://github.com/user-attachments/assets/a846b21a-4f90-4e0f-a817-a43101c3420c" />
+
 
 
 
