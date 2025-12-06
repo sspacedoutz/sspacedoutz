@@ -1,8 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=sspacedoutz&label=views&color=blue&style=flat) 
 
-iwc at all times unless friend . sign straw maybe..
 
-<img width="736" height="612" alt="image" src="https://github.com/user-attachments/assets/5b4be5b1-ad8a-4a4d-a8ff-87dbd92ef7df" />
+<img width="736" height="561" alt="image" src="https://github.com/user-attachments/assets/faa2fc06-d310-4d41-9f97-d2f8deb678b5" />
+
 
 
 
