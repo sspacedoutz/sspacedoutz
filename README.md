@@ -1,7 +1,10 @@
-![](https://komarev.com/ghpvc/?username=sspacedoutz&label=views&color=blue&style=flat) 
+![](https://komarev.com/ghpvc/?username=sspacedoutz&label=keybugs&color=yellow&style=flat)
+
+bite me!
 
 
-<img width="736" height="561" alt="image" src="https://github.com/user-attachments/assets/faa2fc06-d310-4d41-9f97-d2f8deb678b5" />
+<img width="1199" height="757" alt="image" src="https://github.com/user-attachments/assets/a1a37dc3-a2f7-43d3-8d72-548a730f22f4" />
+
 
 
 
