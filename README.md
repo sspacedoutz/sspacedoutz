@@ -1,5 +1,9 @@
 <img width="1198" height="661" alt="image" src="https://github.com/user-attachments/assets/190cc0c9-d262-4bb9-ae18-1d3914714638" />
 
+chance = big
+
+<img width="618" height="510" alt="image" src="https://github.com/user-attachments/assets/7a7ad219-b976-4977-b99b-5b4eb51764f0" />
+
 
 
 
