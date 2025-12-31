@@ -1,4 +1,4 @@
-<img width="515" height="484" alt="image" src="https://github.com/user-attachments/assets/57bda05c-1924-43df-b74b-9fc072f543e4" />
+
 
 chance = big
 
