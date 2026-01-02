@@ -1,10 +1,4 @@
-
-
-chance = big
-
-<img width="618" height="510" alt="image" src="https://github.com/user-attachments/assets/7a7ad219-b976-4977-b99b-5b4eb51764f0" />
-
-
+<img width="412" height="323" alt="image" src="https://github.com/user-attachments/assets/89827d7c-9a86-4e47-97c6-4ef807d89dca" />
 
 
 
