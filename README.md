@@ -1,8 +1,22 @@
-<img width="736" height="460" alt="image" src="https://github.com/user-attachments/assets/33092283-3dff-4eef-8f72-d30367bd93a4" />
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/e6ffe499-97f7-4ff8-bdb8-f566e6616351" />
 
+ .
 
+ .
 
-i love bunnies
+ .
+
+ .
+
+ .
+
+ .
+
+ .
+
+ .
+
+ .
 
 <img width="247" height="266" alt="image" src="https://github.com/user-attachments/assets/e710c5b7-8132-4497-aa75-19d79622f626" />
 then william meets me.bc i am there
