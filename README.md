@@ -11,15 +11,12 @@
 
  .
 
- .
-
- .
 
 
 <img width="247" height="266" alt="image" src="https://github.com/user-attachments/assets/e710c5b7-8132-4497-aa75-19d79622f626" />
 then william meets me.bc i am there
 
-
+[lala](https://github.com/sspacedoutz)
 
 
 
