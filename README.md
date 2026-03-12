@@ -1,3 +1,4 @@
+int w/ me if you like grace :-) I love making friends !! c*h freely when not with friends ^,^
  <p align="center">
 
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/eff7611f-dfb7-4288-aaa0-cd02a4c668e9" />
