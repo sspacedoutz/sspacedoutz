@@ -1,7 +1,7 @@
 c*h unless w/ friends / w2i freely ^u^
  <p align="center">
 
-<img width="436" height="1308" alt="image" src="https://github.com/user-attachments/assets/04c35f5f-77b0-42a6-81b6-584bc447fad0" />
+<img width="346" height="1308" alt="image" src="https://github.com/user-attachments/assets/04c35f5f-77b0-42a6-81b6-584bc447fad0" />
 
 
 
