@@ -1,7 +1,8 @@
 pref iwec unless friend or if im matching your energy tyyyy 
  <p align="center">
 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/f93060db-88e1-4a8f-8f2f-e9927a30c027" />
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/742367c3-b876-45e5-95a6-e8120d81397a" />
+
 
 
 
