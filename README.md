@@ -1,7 +1,8 @@
-pref iwec unless friend or if im matching your energy tyyyy 
+pref iwec unless friend or if im matching your energy
  <p align="center">
 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/d674a51a-fb05-4102-8cab-971fcb47dc0b" />
+<img width="536" height="681" alt="image" src="https://github.com/user-attachments/assets/28c42483-56e8-408c-a62f-6dc805abea86" />
+
 
 
 
