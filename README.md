@@ -1,4 +1,4 @@
-pref iwec unless friend or if im matching your energy
+pref iwc unless friend or if im matching your energy
  <p align="center">
 
 <img width="536" height="681" alt="image" src="https://github.com/user-attachments/assets/28c42483-56e8-408c-a62f-6dc805abea86" />
