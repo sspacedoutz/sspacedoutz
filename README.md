@@ -1,4 +1,4 @@
-i guess you could say you're feeling the pressure......
+i guess you could say you're feeling the pressure......!!!!! feel free to c+h if i'm alone, i dont bite :-)
  <p align="center">
 
 <img width="536" height="681" alt="image" src="https://github.com/user-attachments/assets/28c42483-56e8-408c-a62f-6dc805abea86" />
