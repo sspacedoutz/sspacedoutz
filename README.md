@@ -1,4 +1,4 @@
-PRESSURE C+H + INT !!!!! !! ! im so nice fr guys trust me hang out with fr fire emoji
+PRESSURE C+H + INT !!!!! !! ! i <3 c+h it makes me feel safe .i love my friends too awhyeah bro
  <p align="center">
 
 <img width="624" height="524" alt="image" src="https://github.com/user-attachments/assets/fdd068ef-a978-480d-b4f6-e2b55a38f902" />
