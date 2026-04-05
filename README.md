@@ -1,4 +1,4 @@
-PRESSURE C+H + INT !!!!! !! ! 
+PRESSURE C+H + INT !!!!! !! ! im so nice fr guys trust me hang out with fr fire emoji
  <p align="center">
 
 <img width="624" height="524" alt="image" src="https://github.com/user-attachments/assets/fdd068ef-a978-480d-b4f6-e2b55a38f902" />
