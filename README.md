@@ -1,7 +1,8 @@
-iwc , c+h comf. support ren. DNI if you support zeal.
+iwc , c+h comf.
  <p align="center">
 
-<img width="624" height="524" alt="image" src="https://github.com/user-attachments/assets/fdd068ef-a978-480d-b4f6-e2b55a38f902" />
+<img width="443" height="564" alt="image" src="https://github.com/user-attachments/assets/e1e06354-09b0-4227-bb82-d2e77a0d7911" />
+
 
 
 
