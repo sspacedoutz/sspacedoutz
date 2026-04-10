@@ -1,4 +1,7 @@
-iwc , c+h comf.
+    iwc , c+h comf.                             'Awake.'
+    
+                                                      "Never sleep.'
+    i like scp :-)
  <p align="center">
 
 <img width="443" height="564" alt="image" src="https://github.com/user-attachments/assets/e1e06354-09b0-4227-bb82-d2e77a0d7911" />
