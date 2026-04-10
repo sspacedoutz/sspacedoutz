@@ -1,7 +1,9 @@
     iwc , c+h comf.                             'Awake.'
     
                                                       "Never sleep.'
-    i like scp :-)
+    i like scp :-)                                 -   >_o ''
+<img width="60" height="60" alt="image" src="https://github.com/user-attachments/assets/87a5f37d-f2c6-4f3a-9987-cf6eefef1e97" /> Item #: SCP-079
+
  <p align="center">
 
 <img width="443" height="564" alt="image" src="https://github.com/user-attachments/assets/e1e06354-09b0-4227-bb82-d2e77a0d7911" />
