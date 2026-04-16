@@ -1,7 +1,7 @@
-    iwc , c+h comf.                             'Awake.'
+    iwc , c+h comf.                             Foundation's best chemist ! ^__^
     
-                                                      "Never sleep.'
-    i like scp :-)                                 -   >_o ''
+                                            
+    i luv scp :-)                                 - 
 <img width="60" height="60" alt="image" src="https://github.com/user-attachments/assets/87a5f37d-f2c6-4f3a-9987-cf6eefef1e97" /> Item #: SCP-079
 
  <p align="center">
