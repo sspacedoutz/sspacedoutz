@@ -1,4 +1,4 @@
-    iwc , c+h comf.                             Foundation's best chemist ! ^__^
+    WE UP NOW , c+h comf.                             Foundation's best chemist ! ^__^
     
                                             
     i luv scp :-)                                 - scp fandom int you are a dying breed on pony town i swear
