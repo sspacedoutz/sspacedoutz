@@ -1,4 +1,5 @@
-c+h, kinda inactive , int is ok..ok?im friendly ok..?
+c+h, kinda inactive , int is ok..ok?im friendly ok..? i like having friends ok..?
+younger than 15 iwc or dni.ok?ok
 
  <p align="center">
      
