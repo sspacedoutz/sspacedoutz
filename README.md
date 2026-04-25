@@ -1,8 +1,4 @@
-    WE UP NOW , c+h comf.                             Foundation's best chemist ! ^__^
-    
-                                            
-    i luv scp :-)                                 - scp fandom int you are a dying breed on pony town i swear
-<img width="60" height="60" alt="image" src="https://github.com/user-attachments/assets/87a5f37d-f2c6-4f3a-9987-cf6eefef1e97" />
+c+h, kinda inactive , int is ok..ok?im friendly ok..?
 
  <p align="center">
      
