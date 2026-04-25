@@ -2,7 +2,8 @@ c+h, kinda inactive , int is ok..ok?im friendly ok..?
 
  <p align="center">
      
-<img width="309" height="290" alt="image" src="https://github.com/user-attachments/assets/a5374ee6-2c40-404a-9872-c3439653b4c0" />
+<img width="509" height="490" alt="image" src="https://github.com/user-attachments/assets/a5447f82-1871-4b3d-b135-2cb20db6040b" />
+
 
 
 
