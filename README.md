@@ -1,5 +1,6 @@
-c+h, kinda inactive , int is ok..ok?im friendly ok..? i like having friends ok..?
-younger than 15 iwc or dni.ok?ok
+kinda inactive , int and c+h is ok! socially awkward but i'd love more friends ^_^!
+
+younger than 15 prob wont be friends i want oomfs around my age!!
 
  <p align="center">
      
