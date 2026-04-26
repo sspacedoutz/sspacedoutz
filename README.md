@@ -1,6 +1,6 @@
 kinda inactive , int and c+h is ok! socially awkward but i'd love more friends ^_^!
 
-younger than 16 iwc unless we've been friends
+younger than 15 iwc unless we've been friends
 
  <p align="center">
      
