@@ -1,10 +1,7 @@
-kinda inactive , int and c+h is ok! socially awkward but i'd love more friends ^_^!
-
-younger than 15 iwc unless we've been friends
 
  <p align="center">
      
-<img width="509" height="490" alt="image" src="https://github.com/user-attachments/assets/a5447f82-1871-4b3d-b135-2cb20db6040b" />
+<img width="800" height="571" alt="image" src="https://github.com/user-attachments/assets/fce822c5-0c3c-4ad5-ba61-71cf651b609a" />
 
 
 
@@ -12,6 +9,12 @@ younger than 15 iwc unless we've been friends
 
 
 
+
+
+
+kinda inactive , c*h + int is okay :-)
+
+younger than 15 iwc unless we've been friends
 
 
 
