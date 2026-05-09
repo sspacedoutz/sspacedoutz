@@ -15,7 +15,7 @@ woo i drew that yeah that my hatred design
 
 kinda inactive , c*h + int is okay :-)
 
-Younger than 15 iwc unless we've been friends , basic dni. House of Puso fans dni or dont talk about it around me makes me uncomfortable because of personal reasons so dont be surprised if i act different when its brought up . Same for the other genres of vent animation . ty
+Younger than 15 iwc unless we've been friends , basic dni. House of Puso fans dni or dont talk about it around me makes me uncomfortable because of personal reasons so dont be surprised if i act different when its brought up . Same for the other genres of vent animation . I just personally dont think those kinds of content should have a fandom , as it can be very harmful to vunerable and young people . ty
 
 
 On a happier note, int if you like Blocktales !!!! and other games lol . I'm actually a pretty social guy and I will match energy most of the time . :-) i'm usually with my friends as i'm most comfortable hanging out with them .
