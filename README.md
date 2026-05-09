@@ -1,4 +1,4 @@
-info beloooww
+info beloooww , pls read !
  <p align="center">
      
 <img width="776" height="787" alt="image" src="https://github.com/user-attachments/assets/7e1932ed-65b7-448c-a098-42af06c0c4e0" />
@@ -15,7 +15,10 @@ woo i drew that yeah that my hatred design
 
 kinda inactive , c*h + int is okay :-)
 
-younger than 15 iwc unless we've been friends
+Younger than 15 iwc unless we've been friends , basic dni. House of Puso fans dni or dont talk about it around me makes me uncomfortable because of personal reasons so dont be surprised if i act different when its brought up . Same for the other genres of vent animation . ty
+
+
+On a happier note, int if you like Blocktales !!!! and other games lol . I'm actually a pretty social guy and I will match energy most of the time . :-) i'm usually with my friends as i'm most comfortable hanging out with them .
 
 
 
