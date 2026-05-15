@@ -1,7 +1,8 @@
 info beloooww
  <p align="center">
      
-<img width="776" height="787" alt="image" src="https://github.com/user-attachments/assets/7e1932ed-65b7-448c-a098-42af06c0c4e0" />
+<img width="713" height="659" alt="image" src="https://github.com/user-attachments/assets/d333a44f-bb46-4aa6-92d3-9263b5d7ba37" />
+
 
 
 
