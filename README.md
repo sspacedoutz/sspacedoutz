@@ -1,16 +1,10 @@
 info beloooww
  <p align="center">
      
-<img width="713" height="659" alt="image" src="https://github.com/user-attachments/assets/d333a44f-bb46-4aa6-92d3-9263b5d7ba37" />
+<img width="736" height="460" alt="image" src="https://github.com/user-attachments/assets/14e25143-b188-4049-92ca-0ff66bee1bfb" />
 
 
 
-
-
-
-
-
-woo i drew that yeah that my hatred design
 
 
 
