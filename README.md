@@ -15,6 +15,7 @@ Younger than 14 iwc unless we've been friends , basic dni.
 
 int if you like phighting !!!! and other games lol . I'm actually a pretty social guy and I will match energy most of the time . :-) i'm usually with my friends as i'm most comfortable hanging out with them .
 
+<img width="464" height="343" alt="image" src="https://github.com/user-attachments/assets/db383b5a-be78-469e-aac8-cb2b97458e1d" />
 
 
 
@@ -33,6 +34,11 @@ int if you like phighting !!!! and other games lol . I'm actually a pretty socia
 
 
 
+
+ .
+
+ 
+ .
 
  .
 
