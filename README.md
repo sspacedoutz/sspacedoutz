@@ -15,7 +15,12 @@ Younger than 14 iwc unless we've been friends , basic dni.
 
 int if you like phighting !!!! and other games lol . I'm actually a pretty social guy and I will match energy most of the time . :-) i'm usually with my friends as i'm most comfortable hanging out with them .
 
-<img width="464" height="343" alt="image" src="https://github.com/user-attachments/assets/db383b5a-be78-469e-aac8-cb2b97458e1d" />
+<img width="364" height="243" alt="image" src="https://github.com/user-attachments/assets/db383b5a-be78-469e-aac8-cb2b97458e1d" /> <img width="594" height="248" alt="image" src="https://github.com/user-attachments/assets/63615f38-298e-4308-b091-571500374ae7" /> <img width="258" height="222" alt="image" src="https://github.com/user-attachments/assets/d6dc4fb9-dd7c-463c-b314-bfd71ffeb94f" /> 
+
+if you're going to copy my skin, atleast ask for inspo first lol i would've said sure. 2nd photo is me.
+
+
+
 
 
 
