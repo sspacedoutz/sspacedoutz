@@ -8,12 +8,8 @@
 
 
 
- , c*h + int is okay if i'm alone :-)
 
 Younger than 14 iwc unless we've been friends , basic dni .
-
-
-int if you like phighting !!!! and other games lol . I'm actually a pretty social guy and I will match energy most of the time . :-) i'm usually with my friends as i'm most comfortable hanging out with them .
 
 <img width="364" height="243" alt="image" src="https://github.com/user-attachments/assets/db383b5a-be78-469e-aac8-cb2b97458e1d" /> <img width="334" height="366" alt="image" src="https://github.com/user-attachments/assets/d8f117fd-bd7c-4b7b-be21-666c232e729d" />
 
