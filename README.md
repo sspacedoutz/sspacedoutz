@@ -2,6 +2,7 @@
  <p align="center">
      
 <img width="735" height="441" alt="image" src="https://github.com/user-attachments/assets/c552c74f-96e8-43a3-9dda-a68f8a15d139" />
+banner: CoolCheezy on pin , pfp: Huihui002 on pin >_<
 
 
 
