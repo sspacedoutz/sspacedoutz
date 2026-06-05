@@ -1,7 +1,8 @@
 
  <p align="center">
      
-<img width="735" height="441" alt="image" src="https://github.com/user-attachments/assets/c552c74f-96e8-43a3-9dda-a68f8a15d139" />
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/b9c7465e-7922-4fe7-9d60-decabc0c7dbb" />
+
 banner: CoolCheezy on pin , pfp: Huihui002 on pin >_<
 
 
