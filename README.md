@@ -1,66 +1,39 @@
+$$\color{lightblue}\text{'I could go for a nice stroll.'}$$ 
 
- <p align="center">
+<p align="center">
+<img width="223" height="260" alt="image" src="https://github.com/user-attachments/assets/2cd7d1b6-c381-4e9e-b8ed-0617a42f8cd0" />
+ 
+$$\color{blue}\text{Elliot/Slingshot}$$
 
-     
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/b9c7465e-7922-4fe7-9d60-decabc0c7dbb" />
+<p align="center">
+<img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/5bf5ccc3-6015-494f-a870-097055eea562" /> <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/eae69168-810d-4c11-90f8-af2cc9aa6f96" /> <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/5da2b293-5573-47f3-b4c4-59435c8f0426" />
+
+<p align="center">
+$$\color{darkblue}\text{He/Any}$$
+
+<p align="center">
+ᓚ₍⑅^..^₎♡
+
+<p align="center">
+$$\color{cyan}\text{I love cats , baking , and P!}$$
+
+
+
+︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧
+
+<img width="736" height="314" alt="image" src="https://github.com/user-attachments/assets/7696df8f-5e53-48ca-b290-16758c821678" />
+︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶༉‧₊˚.
+
 
 ` ~ banner + pfp: skatermination ^w^ `
 
-︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶༉‧₊˚.
+︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶༉‧₊˚.
 
+$$\color{lightblue}\text{other info}$$
 
+$$\color{red}\text{basic dni , house of puso also dni or iwec}$$
 
-
-
-
-
-
-Younger than 14 iwc unless we've been friends , basic dni .
-
-<img width="364" height="243" alt="image" src="https://github.com/user-attachments/assets/db383b5a-be78-469e-aac8-cb2b97458e1d" /> <img width="334" height="366" alt="image" src="https://github.com/user-attachments/assets/d8f117fd-bd7c-4b7b-be21-666c232e729d" />
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
- .
-
- 
- .
-
- .
-
- .
-
- .
-
- .
-
- .
-
-
-
-<img width="247" height="266" alt="image" src="https://github.com/user-attachments/assets/e710c5b7-8132-4497-aa75-19d79622f626" />
-then william meets me.bc i am there
-
+$$\color{cyan}\text{i'll add more later. am lazy.}$$
 
 
 
