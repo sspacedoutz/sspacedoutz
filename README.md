@@ -18,10 +18,13 @@ $$\color{darkblue}\text{He/Any}$$
 ᓚ₍⑅^..^₎♡
 
 <p align="center">
-$$\color{cyan}\text{I love cats , baking , and P!}$$
+$$\color{blue}\text{I love cats , baking , and P!}$$
 
 
 <p align="center">
+ $$\color{cyan}\text{"Can't catch me!"}$$
+
+ <p align="center">
 𖾕𖾝꙼ᩚ𛲕𖾟(˵◝ ⩊  ◜˵マ) ︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧
 
 <img width="736" height="314" alt="image" src="https://github.com/user-attachments/assets/7696df8f-5e53-48ca-b290-16758c821678" />
@@ -33,7 +36,7 @@ $$\color{lightyellow}\text{~ banner + pfp: skatermination on tt !}$$
 <p align="center">
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶༉‧₊˚.
 
-$$\color{lightblue}\text{other info}$$
+$$\color{darkblue}\text{other info}$$
 
 $$\color{red}\text{basic dni , house of puso also dni or iwec}$$
 
