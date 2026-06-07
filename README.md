@@ -1,7 +1,7 @@
 $$\color{lightblue}\text{'I could go for a nice stroll.'}$$ 
 
 <p align="center">
-<img width="223" height="260" alt="image" src="https://github.com/user-attachments/assets/2cd7d1b6-c381-4e9e-b8ed-0617a42f8cd0" />
+<img width="223" height="240" alt="image" src="https://github.com/user-attachments/assets/2cd7d1b6-c381-4e9e-b8ed-0617a42f8cd0" />
  
 $$\color{blue}\text{Elliot/Slingshot}$$
 
