@@ -6,7 +6,7 @@ $$\color{lightblue}\text{'I could go for a nice stroll.'}$$
 $$\color{blue}\text{Elliot/Slingshot}$$
 
 <p align="center">
-$$\color{lightblue}\text{16}$$
+$$\color{lightblue}\text{˚ ༘♡ ⋆｡˚}$$
 
 <p align="center">
 <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/5bf5ccc3-6015-494f-a870-097055eea562" /> <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/eae69168-810d-4c11-90f8-af2cc9aa6f96" /> <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/5da2b293-5573-47f3-b4c4-59435c8f0426" />
