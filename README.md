@@ -22,7 +22,7 @@ $$\color{cyan}\text{I love cats , baking , and P!}$$
 
 
 <p align="center">
-︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧
+(˵◝ ⩊  ◜˵マ) ︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧
 
 <img width="736" height="314" alt="image" src="https://github.com/user-attachments/assets/7696df8f-5e53-48ca-b290-16758c821678" />
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶༉‧₊˚.
