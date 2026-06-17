@@ -1,3 +1,8 @@
+[friends/party please readdddd: im currently under many tornado watches and these ones are supposed to be extremely dangerous , and may even cut my power out, so i might not be online much if that does happen or worse case, if my house blows down. hopefully that DOESNT happen but apparently you never know with this storm rolling in its supposed to be pretty dangerous smh. ofc i still have work at 4pm when shits gonna hit the fan part 2. the capitalist grind never ennds ig >_>
+
+
+
+
 $$\color{lightblue}\text{'I could go for a nice stroll.'}$$ 
 
 <p align="center">
