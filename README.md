@@ -33,7 +33,7 @@ $$\color{blue}\text{I love cats , baking , and P!}$$
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶༉‧₊˚.
 
 <p align="center">
-$$\color{lightyellow}\text{~ banner + pfp: skatermination on tt !}$$
+$$\color{lightyellow}\text{pfp: 7zxse on twitter ! , Banner: mongrellic on pin !}$$
 
 <p align="center">
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶༉‧₊˚.
