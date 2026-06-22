@@ -5,7 +5,7 @@ $$\color{lightblue}\text{'I could go for a nice stroll.'}$$
 <img width="736" height="314" alt="image" src="https://github.com/user-attachments/assets/6a19f649-0869-4f53-ba21-e936d467c742" />
 
  
-$$\color{blue}\text{Elliot/Aubree/names of kins}$$
+$$\color{blue}\text{Elliot/names of kins}$$
 
 <p align="center">
 $$\color{lightblue}\text{˚ ༘♡ ⋆｡˚}$$
