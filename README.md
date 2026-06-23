@@ -14,7 +14,7 @@ $$\color{lightblue}\text{˚ ༘♡ ⋆｡˚}$$
 <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/5bf5ccc3-6015-494f-a870-097055eea562" /> <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/eae69168-810d-4c11-90f8-af2cc9aa6f96" /> <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/5da2b293-5573-47f3-b4c4-59435c8f0426" />
 
 <p align="center">
-$$\color{darkblue}\text{He/Any}$$
+$$\color{lightpink}\text{He/Any}$$
 
 <p align="center">
 ᓚ₍⑅^..^₎♡
@@ -38,9 +38,9 @@ $$\color{lightyellow}\text{pfp: 7zxse on twitter ! , Banner: mongrellic on pin !
 <p align="center">
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶༉‧₊˚.
 
-$$\color{darkblue}\text{other info}$$
+$$\color{lightyellow}\text{other info}$$
 
-$$\color{red}\text{basic dni , house of puso also dni or iwec}$$
+$$\color{white}\text{basic dni , house of puso also dni or iwec}$$
 
 $$\color{cyan}\text{i'll add more later. am lazy.}$$
 
