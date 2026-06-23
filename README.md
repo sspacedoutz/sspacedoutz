@@ -42,6 +42,8 @@ $$\color{lightyellow}\text{other info}$$
 
 $$\color{white}\text{basic dni , house of puso also dni or iwec}$$
 
+$$\color{lightpink}\text{if i unadd you randomly, it might be because i dont exactly remember you . i have memory issues, so feel free to message me on my ata or find me on pony town to reconnect with me if you think i made a mistake LOL}$$
+
 $$\color{cyan}\text{i'll add more later. am lazy.}$$
 
 <p align="center">
