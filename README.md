@@ -46,7 +46,7 @@ $$\color{lightpink}\text{i have memory issues and clear my friendlist every so o
 
 $$\color{lightblue}\text{if you think i unadded you without reason , find me @ at tree and we can reconnect!}$$
 
-$$\color{lightpink}\text{it was prob bc we dont talk often anymore & i dont fully remember you, not out of malice! i love u all}$$
+$$\color{lightpink}\text{it was prob bc we dont talk often anymore and i dont fully remember you, not out of malice! i love u all}$$
 
 $$\color{cyan}\text{i'll add more later. am lazy.}$$
 
