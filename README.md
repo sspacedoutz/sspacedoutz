@@ -1,3 +1,4 @@
+ ![](https://komarev.com/ghpvc/?username=sspacedoutz)
 
 $$\color{lightblue}\text{'Are my staff still doing their jobs?'}$$ 
 
