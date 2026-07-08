@@ -10,7 +10,7 @@ $$\color{lightblue}\text{'Are my staff still doing their jobs?'}$$
 $$\color{blue}\text{Elliot/Aubree/Names of kins}$$
 
 <p align="center">
-$$\color{lightblue}\text{˚ ༘♡ ⋆｡˚}$$
+$$\color{lightpink}\text{˚ ༘♡ ⋆｡˚}$$
 
 <p align="center">
 <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/5bf5ccc3-6015-494f-a870-097055eea562" /> <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/eae69168-810d-4c11-90f8-af2cc9aa6f96" /> <img <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/2dc0ca4c-6c86-4324-b13e-f510cb914a82" />
@@ -20,6 +20,9 @@ $$\color{lightblue}\text{˚ ༘♡ ⋆｡˚}$$
 $$\color{lightpink}\text{He/Any}$$
 
 <p align="center">
+$$\color{lightblue}\text{read pronounscc for more info on pronouns , flags , etc!}$$
+
+<p align="center">
 ᓚ₍⑅^..^₎♡
 
 <p align="center">
@@ -27,7 +30,7 @@ $$\color{blue}\text{hvykin slingshot , thats me!}$$
 
 
 <p align="center">
- $$\color{lightblue}\text{"Can't catch me!"}$$
+ $$\color{lightpink}\text{"Can't catch me!"}$$
 
  <p align="center">
 𖾕𖾝꙼ᩚ𛲕𖾟(˵◝ ⩊  ◜˵マ) ︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧
@@ -41,15 +44,9 @@ $$\color{lightyellow}\text{pfp + banner: fuwaket on pin !}$$
 <p align="center">
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶༉‧₊˚.
 
-$$\color{lightyellow}\text{other info}$$
+$$\color{lightpink}\text{other info}$$
 
 $$\color{white}\text{basic dni , house of puso also dni or iwec}$$
-
-$$\color{lightpink}\text{i have memory issues and clear my friendlist every so often}$$
-
-$$\color{lightblue}\text{if you think i unadded you without reason , find me @ at tree and we can reconnect!}$$
-
-$$\color{lightpink}\text{it was prob bc we dont talk often anymore and i dont fully remember you, not out of malice! i love u all}$$
 
 $$\color{lightblue}\text{i'll add more later. am lazy.}$$
 
