@@ -3,7 +3,8 @@
 $$\color{lightblue}\text{'Are my staff still doing their jobs?'}$$ 
 
 <p align="center">
-<img width="736" height="314" alt="image" src="https://github.com/user-attachments/assets/6a19f649-0869-4f53-ba21-e936d467c742" />
+<img width="736" height="432" alt="image" src="https://github.com/user-attachments/assets/d112cd09-2c76-4c05-9f4d-e6cb540e8623" />
+
 
  
 $$\color{blue}\text{Elliot/Aubree/Names of kins}$$
