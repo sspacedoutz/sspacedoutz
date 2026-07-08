@@ -12,7 +12,8 @@ $$\color{blue}\text{Elliot/Aubree/Names of kins}$$
 $$\color{lightblue}\text{˚ ༘♡ ⋆｡˚}$$
 
 <p align="center">
-<img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/5bf5ccc3-6015-494f-a870-097055eea562" /> <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/eae69168-810d-4c11-90f8-af2cc9aa6f96" /> <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/5da2b293-5573-47f3-b4c4-59435c8f0426" />
+<img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/5bf5ccc3-6015-494f-a870-097055eea562" /> <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/eae69168-810d-4c11-90f8-af2cc9aa6f96" /> <img <img width="40" height="28" alt="image" src="https://github.com/user-attachments/assets/2dc0ca4c-6c86-4324-b13e-f510cb914a82" />
+
 
 <p align="center">
 $$\color{lightpink}\text{He/Any}$$
@@ -21,11 +22,11 @@ $$\color{lightpink}\text{He/Any}$$
 ᓚ₍⑅^..^₎♡
 
 <p align="center">
-$$\color{blue}\text{I love cats , baking , and P!}$$
+$$\color{blue}\text{hvykin slingshot , thats me!}$$
 
 
 <p align="center">
- $$\color{cyan}\text{"Can't catch me!"}$$
+ $$\color{lightblue}\text{"Can't catch me!"}$$
 
  <p align="center">
 𖾕𖾝꙼ᩚ𛲕𖾟(˵◝ ⩊  ◜˵マ) ︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧‿︵‿︵︵‿︵‿୨♡୧
@@ -49,7 +50,7 @@ $$\color{lightblue}\text{if you think i unadded you without reason , find me @ a
 
 $$\color{lightpink}\text{it was prob bc we dont talk often anymore and i dont fully remember you, not out of malice! i love u all}$$
 
-$$\color{cyan}\text{i'll add more later. am lazy.}$$
+$$\color{lightblue}\text{i'll add more later. am lazy.}$$
 
 <p align="center">
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶༉‧₊˚.
