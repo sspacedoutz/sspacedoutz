@@ -8,9 +8,6 @@
 
 .
 
-.
-
-
 $$\color{lightblue}\text{'Are my staff still doing their jobs?'}$$ 
 
 <p align="center">
