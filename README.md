@@ -1,5 +1,15 @@
  ![](https://komarev.com/ghpvc/?username=sspacedoutz)
 
+<p align="center">
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/d56fe70a-335c-4acb-9cd5-0c06b6ef7454" />
+ <p align="center">
+@CONEXlONN is #cancel . feet
+
+.
+
+.
+
+
 $$\color{lightblue}\text{'Are my staff still doing their jobs?'}$$ 
 
 <p align="center">
