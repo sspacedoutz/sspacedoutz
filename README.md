@@ -1,7 +1,7 @@
  ![](https://komarev.com/ghpvc/?username=sspacedoutz)
 
 <p align="center">
-<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/d56fe70a-335c-4acb-9cd5-0c06b6ef7454" /> <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/1b760c5d-f01b-4dce-9dd2-c5eebded0f33" />
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/d56fe70a-335c-4acb-9cd5-0c06b6ef7454" /> <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/1b760c5d-f01b-4dce-9dd2-c5eebded0f33" />
 
  <p align="center">
 @CONEXlONN FUCK OUT OF MY DMS!!!!!!!
