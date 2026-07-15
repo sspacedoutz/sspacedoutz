@@ -1,5 +1,14 @@
  ![](https://komarev.com/ghpvc/?username=sspacedoutz)
 
+
+
+<p align="center">
+ $$\color{gold}\text{pt-walk-of-fame!!}$$
+
+ <p align="center">
+ <img width="576" height="66" alt="image" src="https://github.com/user-attachments/assets/94e12cf2-0b0b-4d51-b9cc-47083eea35d2" />
+
+
 $$\color{lightblue}\text{'Are my staff still doing their jobs?'}$$ 
 
 <p align="center">
