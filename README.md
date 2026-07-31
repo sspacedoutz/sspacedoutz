@@ -1,6 +1,8 @@
+
  ![](https://komarev.com/ghpvc/?username=sspacedoutz)
 
 
+@/resting-medkit - just leave bro alone its getting embrassing atp wrap it up. and seriously pls get mental help dude u need to take a break from the internet or something your github readme is incredibly disturbing and is NOT helping your case. you're whole reaction to this screams immature and if you getting this gen triggered over rocket saying endos arent valid (please research how DID ACTUALLY works) you might need to just take a step back instead of harassing him for months on end, it doesnt help anyone.
 
 <p align="center">
  $$\color{gold}\text{pt-walk-of-fame!!}$$
