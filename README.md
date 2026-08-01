@@ -59,8 +59,6 @@ $$\color{white}\text{basic dni , house of puso also dni or iwec}$$
 
 $$\color{lightblue}\text{i'll add more later. am lazy.}$$
 
-$$\color{lightpink}\text{HEAVYYY dni if ur ikilledthosekidsin1985 or one of his friends Ok. leave mikey alone, hes not 'spreading rumors'}$$
-
 <p align="center">
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶༉‧₊˚.
 <img width="498" height="278" alt="image" src="https://github.com/user-attachments/assets/2abff2f5-7e6b-416c-ae56-47cef2b80c89" />
