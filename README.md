@@ -12,7 +12,7 @@
 $$\color{green}\text{To help others you must help yourself.}$$ 
 
 <p align="center">
-<img width="835" height="485" alt="image" src="https://github.com/user-attachments/assets/a72c6804-baf7-48d0-b7cc-8e368cc971a7" />
+<img width="835" height="385" alt="image" src="https://github.com/user-attachments/assets/a72c6804-baf7-48d0-b7cc-8e368cc971a7" />
 
 
 
