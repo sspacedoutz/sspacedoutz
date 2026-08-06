@@ -3,10 +3,8 @@
 
 
 <p align="center">
- $$\color{gold}\text{pt-walk-of-fame!!}$$
+ $$\color{gold}\text{C+h freely im a very kind person, promise!}$$
 
- <p align="center">
- <img width="276" height="36" alt="image" src="https://github.com/user-attachments/assets/94e12cf2-0b0b-4d51-b9cc-47083eea35d2" />
 
 
 $$\color{green}\text{To help others you must help yourself.}$$ 
