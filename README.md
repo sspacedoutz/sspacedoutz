@@ -3,7 +3,7 @@
 
 
 <p align="center">
- $$\color{gold}\text{C+h freely im a very kind person, promise!}$$
+ $$\color{gold}\text{C+h freely im a very kind being, promise! usually quite sociable so dont be afraid to say hello :-)}$$
 
 
 
