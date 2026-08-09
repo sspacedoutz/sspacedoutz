@@ -37,7 +37,7 @@ $$\color{lightgreen}\text{read pronounscc for more info on pronouns , flags , et
 ˚₊‧꒰ა ♡ ໒꒱ ‧₊˚
 
 <p align="center">
-$$\color{gold}\text{hvykin slingshot, saint, etc}$$
+$$\color{gold}\text{hvykin slingshot, saint, enot/inv etc}$$
 
 
 <p align="center">
