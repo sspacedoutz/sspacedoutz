@@ -18,7 +18,7 @@ $$\color{green}\text{To help others you must help yourself.}$$
 
 
  
-$$\color{green}\text{Elliot/Aubree/Names of kins}$$
+$$\color{green}\text{Elliot/Avery/Names of kins}$$
 
 <p align="center">
 $$\color{gold}\text{˚ ༘♡ ⋆｡˚}$$
