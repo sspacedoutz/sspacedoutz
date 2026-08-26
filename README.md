@@ -13,7 +13,7 @@ https://github.com/pt-of-awesomeness || https://github.com/pt-fashion || https:/
 $$\color{red}\text{'If my pain can be a cure for peace, I don’t mind!'}$$ 
 
 <p align="center">
-<img width="548" height="455" alt="image" src="https://github.com/user-attachments/assets/0f4cb1a4-7f4d-40d1-8670-88e3359d2471" />
+<img width="448" height="355" alt="image" src="https://github.com/user-attachments/assets/0f4cb1a4-7f4d-40d1-8670-88e3359d2471" />
 
 
 
