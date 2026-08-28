@@ -8,6 +8,10 @@ https://github.com/pt-of-awesomeness || https://github.com/pt-fashion || https:/
 <p align="center">
  $$\color{darkred}\text{C+h freely im a very kind being, promise! usually quite sociable so dont be afraid to say hello :-)}$$
 
+<p align="center">
+ <img width="300" height="158" alt="image" src="https://github.com/user-attachments/assets/fbf8b013-8b4e-4288-a889-3d599f7a149c" />
+
+
 
 
 $$\color{red}\text{'If my pain can be a cure for peace, I don’t mind!'}$$ 
