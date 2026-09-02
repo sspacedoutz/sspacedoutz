@@ -1,9 +1,9 @@
 
  ![](https://komarev.com/ghpvc/?username=sspacedoutz)
  
-  $$\color{lightgreen}\text{The Saint of Pony Town}$$
+  $$\color{lightblue}\text{The Saint + Slingshot of Pony Town}$$
   
-https://github.com/pt-of-awesomeness || https://github.com/pt-fashion || https://github.com/title-town || https://github.com/cosplaytown || https://github.com/ponytowncosplayers
+https://github.com/pt-of-awesomeness || https://github.com/pt-fashion || https://github.com/title-town || https://github.com/cosplaytown || https://github.com/ponytowncosplayers || https://github.com/pt-walk-of-fame
 
 <p align="center">
  $$\color{lightpink}\text{usually quite sociable so dont be afraid to say hello , can be shy sometimes}$$
