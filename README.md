@@ -6,6 +6,9 @@
 https://github.com/pt-of-awesomeness || https://github.com/pt-fashion || https://github.com/title-town || https://github.com/cosplaytown || https://github.com/ponytowncosplayers || https://github.com/pt-walk-of-fame
 
 <p align="center">
+<img width="335" height="224" alt="image" src="https://github.com/user-attachments/assets/143e1217-aae7-4bb8-bc61-2efa51d39530" />
+
+<p align="center">
  $$\color{lightpink}\text{usually quite sociable so dont be afraid to say hello , can be shy sometimes}$$
 
 <p align="center">
