@@ -34,7 +34,7 @@ $$\color{lightblue}\text{˚ ༘♡ ⋆｡˚}$$
 
 $$\color{lightpink}\text{other info}$$
 
-$$\color{white}\text{basic dni , house of puso also dni or iwec}$$
+$$\color{white}\text{basic dni , house of puso also dni or iwec , ivandrew dni}$$
 
 $$\color{lightgreen}\text{i'll add more later. am lazy.}$$
 
