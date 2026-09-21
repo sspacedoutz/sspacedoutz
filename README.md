@@ -7,9 +7,6 @@
 [♡](https://github.com/pt-of-awesomeness) [♡](https://github.com/pt-fashion) [♡](https://github.com/title-town) [♡](https://github.com/cosplaytown) [♡](https://github.com/ponytowncosplayers)  [♡]( https://github.com/pt-walk-of-fame)  [♡](https://github.com/pt-heavyfictkin)
 
 <p align="center">
- $$\color{lightpink}\text{usually quite sociable so dont be afraid to say hello , can be shy sometimes}$$
-
-<p align="center">
  <img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/6bac2603-412f-4550-b0d7-44a28b8c3fbe" />
 
 <p align="center">
