@@ -1,7 +1,7 @@
 
  ![](https://komarev.com/ghpvc/?username=sspacedoutz)
  
-  $$\color{lightblue}\text{The Saint + Slingshot of Pony Town}$$
+  $$\color{lightblue}\text{The Saint (mostly lol) + Slingshot of Pony Town}$$
 
 <div align="center">
  
