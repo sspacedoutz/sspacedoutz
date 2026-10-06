@@ -5,7 +5,7 @@
 
 <div align="center">
  
-  $$\color{green}\text{rainworld bmf👀}$$
+  $$\color{green}\text{rainworld bmf. big comf👀}$$
   
   &nbsp;<div align="center">
 [♡](https://github.com/pt-of-awesomeness) [♡](https://github.com/pt-fashion) [♡](https://github.com/title-town) [♡](https://github.com/cosplaytown) [♡](https://github.com/ponytowncosplayers)  [♡]( https://github.com/pt-walk-of-fame)  [♡](https://github.com/pt-heavyfictkin)
