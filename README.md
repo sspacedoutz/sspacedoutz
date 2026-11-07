@@ -6,12 +6,9 @@
   &nbsp;<div align="center">
 [♡](https://github.com/pt-of-awesomeness) [♡](https://github.com/pt-fashion) [♡](https://github.com/title-town) [♡](https://github.com/cosplaytown) [♡](https://github.com/ponytowncosplayers)  [♡]( https://github.com/pt-walk-of-fame)  [♡](https://github.com/pt-heavyfictkin)
 
-<img width="432" height="344" alt="image" src="https://github.com/user-attachments/assets/859256d3-408f-4e0a-9998-6e3b00a1b60f" />
+<img width="340" height="315" alt="image" src="https://github.com/user-attachments/assets/4ebf94c0-f69b-459b-b18d-150c47376979" />
 <div align="center">
- 
-cr; anniethecoo1est
-
-
+What a waste, Army dreamers .
 
 
 
