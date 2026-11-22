@@ -6,7 +6,8 @@
   &nbsp;<div align="center">
 [♡](https://github.com/pt-of-awesomeness) [♡](https://github.com/pt-fashion) [♡](https://github.com/title-town) [♡](https://github.com/cosplaytown) [♡](https://github.com/ponytowncosplayers)  [♡]( https://github.com/pt-walk-of-fame)  [♡](https://github.com/pt-heavyfictkin)
 
-<img width="435" height="311" alt="image" src="https://github.com/user-attachments/assets/8695c39a-0f8a-4fe1-bac8-98769723f859" />
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/f1c3faab-a203-48ee-9598-1bf04f6c8dd8" />
+
 
 
 
